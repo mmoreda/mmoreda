@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @mmoreda
+- 👀 I’m interested in golf
+- 🌱 I’m currently learning java
+- 💞️ I’m looking to collaborate on schoolwork
+- 📫 How to reach me: my email
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: im right handed
